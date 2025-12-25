@@ -3,12 +3,8 @@
 # <div align="center">
 Un ensemble d'enfants
 
-La galaxie s'étend
+Children born of one emotion
 
-Jardin de l'imagination
+Our devotion's deepest ocean
 
-Combler la lacune
-
-Voler face à la lune
-
-Vois comme nous évoluons
+No division reasoned we'll be free
