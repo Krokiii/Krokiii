@@ -1,3 +1,3 @@
-# <div align="center"> hi
+# <div align="center"> haaaiii
 <img width="749" height="524" alt="изображение" src="https://github.com/user-attachments/assets/c8d6497b-cc11-4032-9037-6fbc58eb61fc"/>
  <div align="center">
